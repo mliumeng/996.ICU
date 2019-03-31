@@ -1,3 +1,5 @@
+有没有能创作音乐的？能把这个事情搞成一个音乐吗？方便传播，最好摇滚🤘
+
 996.ICU
 =======
 The name `996.ICU` refers to **'Work by "996", sick in ICU'**, an ironic saying among Chinese programmers, which means that by following the "996" work schedule, you are risking yourself getting into the ICU (Intensive Care Unit).
